@@ -6,5 +6,5 @@
   <img src="https://i.postimg.cc/q75B0xqp/Untitled205-20260711015218.png" width="400">
 </p>
 
-[prns](https://pronouns.cc/@cyberluvk)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[straw](https://nunflix.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://cyberluvk.atabook.org)
+[prns](https://pronouns.cc/@cyberluvk)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[straw](https://nunflix.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://cyberluvk.atabook.org)
 
