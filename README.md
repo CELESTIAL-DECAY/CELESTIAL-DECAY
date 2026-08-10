@@ -6,5 +6,5 @@
   <img src="https://i.postimg.cc/q75B0xqp/Untitled205-20260711015218.png" width="400">
 </p>
 
-$${\color{#69A3A2}ㅤㅤㅤㅤㅤ♡}$$[prns](https://pronouns.cc/@cyberluvk)$${\color{#E5B0E4}♡}$$[straw](https://nunflix.straw.page)
+[prns](https://pronouns.cc/@cyberluvk)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[straw](https://nunflix.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](
 
