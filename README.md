@@ -7,5 +7,5 @@
 </p>
 
 [prns](https://pronouns.cc/@cyberluvk)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[straw](https://youtu.be/dQw4w9WgXcQ?si=5L2Hu6wR82n92_QQ)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://cyberluvk.atabook.org)
-ㅤㅤㅤ    ㅤ ㅤㅤ  [rentry](
+ㅤㅤㅤ    ㅤ ㅤㅤ ㅤ[rentry](
 https://youtu.be/dQw4w9WgXcQ?si=5L2Hu6wR82n92_QQ)
